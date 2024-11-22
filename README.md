@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JAYKarthika
 - 👀 I’m interested in Travel, Food, Spirituality and lots of COFFEE and CHOCOLATES..
 - 🌱 I’m currently learning to Meditate, which is barely working.. I will get there someday :D
-- 💞️ I’m looking to collaborate on everything fun and exciting. Glad to be a part of new things always.  Love to Learning and Sharing my learnings.
+- 💞️ I’m looking to collaborate on everything fun and exciting. Glad to be part of new things.  Love Learning and enjoy sharing my learnings.
 - ⚡ Fun fact: Coffee Addict, School Prefect, Interstate level Athlete in school 
 
 <!---
